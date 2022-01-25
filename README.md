@@ -1,5 +1,5 @@
 My name is Ben Vigna!
-I am a software engineer, and a recent graduate of Michigan Technological University. 
+I am a software engineer out of Michigan Tech, and a Multiplex Engineer/Programmer for Firefly Integrations. 
 
 I love hiking, swimming, video games, and learning/teaching myself new programming languages. 
 
