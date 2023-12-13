@@ -5,5 +5,5 @@ I want to code! I want to solve problems! And I'd also love to help people in th
 
 So, if you are recruiting, have a look! This is where my portfolio resides.
 
-If you like what you see, you can find me at bavigna@mtu.edu. 
+If you like what you see, you can find me at bvig543@gmail.com.
 
